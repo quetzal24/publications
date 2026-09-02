@@ -52,7 +52,7 @@ Sauf mention contraire, publiées sous le nom Johnson, P.
 - **1998** (avril) — *Commerce Équitable: Un Regard Derrière le Label* — site l'Éconovateur
 - **1996** — *Les producteurs de café dans la tourmente de la libéralisation* — Demain le Monde, n°10
 
-### Chaînes de valeur (thé, artémisia)
+### Chaînes de valeur (ylang ylang, thé, artémisia)
 
 - **2023** — *Étude de la chaîne de valeur huile essentielle d'ylang-ylang aux Comores* — Cahiers de recherche de l'océan Indien, Université de la Réunion
 - **2020** (juillet) — *Artemisia, une plante entre médecine et politique* — Alternatives Économiques
